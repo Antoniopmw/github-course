@@ -7,3 +7,6 @@ Saiba mais no kkkkkkkk
 Gostou do curso? Quer mais? Ajude com uma doação, até um cafe é valido!
 
 ratchuflai
+kkkkkk
+
+Qualquer coisa
